@@ -2,7 +2,7 @@
 
 ## Hi, Can you please share your suitable time for a quick meeting at the email addresses below.
 
-### Email : sonali.misal@sroniyan.com, chandan.singh@gmail.com
+### Email : sonali.misal@sroniyan.com, chandan.singh@sroniyan.com
 ### Contact : +91 6264466429, +91 8879929974
 ### Whatsapp : +91 6264466429
 
